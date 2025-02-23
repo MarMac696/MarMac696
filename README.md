@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MarMac696, or, Mark A. McLemore
-- 👀 I’m interested in ... Homesteading, Self-sufficientcy, Writing: horror short stories, poetry, non-fiction (about nature AND politics), Crypto
+- 👀 I’m interested in ... Homesteading, Self-sufficiency, Writing: horror short stories, poetry, non-fiction (about nature AND politics), Crypto
 - 🌱 I’m currently learning ... Gardening, Animal Husbandry, Crypto
 - 💞️ I’m looking to collaborate on ... fictional horror stories and horror non-fiction stories; like wild pigs destroying ecosystems, and navigating Crypto ecosystems.
 - 📫 How to reach me ... dyyung69@gmail.com, 23375 W Howard City Edmore Rd, Howard City, MI, USA 49329, (231) 580- 6930 (prefer text as I live in the swamps of Michigan.
